@@ -1,10 +1,10 @@
 [![cloudnstar.png](https://i.postimg.cc/dtZtLbVj/cloudnstar.png)](https://postimg.cc/bs8j5FbZ)
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sekuya&size=40&pause=1000&color=E2BB63&center=true&vCenter=true&width=1200&lines=%5B+about+me+%5D" alt="Typing SVG" /></a>
-<p1 align="center">
+<p align="center" font-size="60px">
 Lou<br>
 20<br>
 usually offtab! whisp to int<br><br>
-</p1>
+</p>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sekuya&size=40&pause=1000&color=E2BB63&center=true&vCenter=true&width=1200&lines=%5B+interests+%5D" alt="Typing SVG" /></a>
 <p align="center">
