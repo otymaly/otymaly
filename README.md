@@ -3,7 +3,8 @@
 <p align="center">
 Lou<br>
 20<br>
-usually offtab! whisp to int<br><br>
+usually offtab! whisp to int<br>
+minors, proshippers, assholes DNI <3 <br><br>
 </p>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sekuya&size=40&pause=1000&color=E2BB63&center=true&vCenter=true&width=1200&lines=%5B+interests+%5D" alt="Typing SVG" /></a>
